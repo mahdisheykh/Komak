@@ -1,2 +1,0 @@
-# Komak
-For basij daneshgah
